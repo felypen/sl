@@ -8,4 +8,3 @@
 
 - ![](https://media.tenor.com/EbI-LyqfTdwAAAAM/sports-sportsmanias.gif)
 - ![](https://media.tenor.com/tuvsSJvyKSoAAAAM/minecraft-steve.gif)
-- ![](https://media.tenor.com/c2_kLUjifZYAAAAM/peaceful-place.gif)
